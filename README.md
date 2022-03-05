@@ -21,6 +21,10 @@
 
 * https://rupor.md/kto-iz-zvezd-podderzhal-a-kto-osudil-vojnu-s-ukrainoj/
 
+### Прохор Шаляпин (певец)
+
+* https://rupor.md/kto-iz-zvezd-podderzhal-a-kto-osudil-vojnu-s-ukrainoj/
+
 # Шоу бизнес
 
 ### Иосив Пригожин (продюсер)
@@ -33,7 +37,3 @@
 
 * https://rupor.md/kto-iz-zvezd-podderzhal-a-kto-osudil-vojnu-s-ukrainoj/
 
-
-### Прохор Шаляпин (певец)
-
-* https://rupor.md/kto-iz-zvezd-podderzhal-a-kto-osudil-vojnu-s-ukrainoj/
