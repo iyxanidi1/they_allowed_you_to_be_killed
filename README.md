@@ -37,6 +37,8 @@
 
 # Писатели
 
+* https://ujnosahalinsk.bezformata.com/listnews/operatciya-na-ukraine-ne-nachalo-voyni/103058393/
+
 ### Герман Садулаев
 ### Андрей Геласимов
 ### Александр Пелевин
@@ -45,7 +47,7 @@
 ### Андрей Рудалёв
 ### Даниэль Орлов
 ### Вячеслав Коновалов
-### 
+
 
 * https://rupor.md/kto-iz-zvezd-podderzhal-a-kto-osudil-vojnu-s-ukrainoj/
 
