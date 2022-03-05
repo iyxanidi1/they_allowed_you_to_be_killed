@@ -35,6 +35,8 @@
 
 ### Марат Башаров (актер)
 
+* https://rupor.md/kto-iz-zvezd-podderzhal-a-kto-osudil-vojnu-s-ukrainoj/
+
 # Писатели
 
 * https://ujnosahalinsk.bezformata.com/listnews/operatciya-na-ukraine-ne-nachalo-voyni/103058393/
@@ -49,5 +51,4 @@
 ### Вячеслав Коновалов
 
 
-* https://rupor.md/kto-iz-zvezd-podderzhal-a-kto-osudil-vojnu-s-ukrainoj/
 
