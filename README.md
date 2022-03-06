@@ -65,6 +65,7 @@
 ### Егор Бугаенко (программист)
 
 * https://github.com/yegor256
+* blog@yegor256.com
 * https://dou.ua/forums/topic/36855/
 
 
