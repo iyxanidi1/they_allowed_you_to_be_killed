@@ -60,3 +60,11 @@
 * https://www.kommersant.ru/doc/5249398
 * https://www.e1.ru/text/gorod/2022/03/06/70492169/
 
+# IT
+
+### Егор Бугаенко (программист)
+
+* https://github.com/yegor256
+* https://dou.ua/forums/topic/36855/
+
+
