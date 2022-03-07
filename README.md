@@ -76,7 +76,33 @@
 
 * https://rus.jauns.lv/article/progulka/489428-kto-iz-rossiiskix-zvezd-podderzal-a-kto-osudil-voinu-v-ukraine-dopolneno
 
-
+### Александр Панкратов-Чёрный
+* https://www.5-tv.ru/news/378191/akter-pankratovcernyj-nacionalistov-naukraine-davno-pora-bylo-ostanovit
+### Василий Ливанов
+* https://www.kp.ru/daily/27370/4552804/
+### Александр Олешко
+* https://vz.ru/news/2022/3/3/1146756.html
+### Алла Довлатова
+* https://www.kp.ru/daily/27369.5/4551343/
+### Дмитрий Певцов
+* https://www.kp.ru/online/news/4644467/
+### Ирина Апексимова
+* https://vz.ru/question/2022/3/2/1146626.html
+### Владимир Машков
+* https://regnum-ru.turbopages.org/regnum.ru/s/news/3518065.html
+### Игорь Скляр
+* https://vz.ru/question/2022/3/2/1146626.html
+### Иван Охлобыстин
+* https://vz.ru/question/2022/3/2/1146626.html
+### Станислав Дужников
+* https://vz.ru/question/2022/3/2/1146626.html
+### Борис Галкин
+* https://vz.ru/question/2022/3/2/1146626.html
+### Александр Пашутин, 
+### Никита Михалков
+* https://vz.ru/news/2022/2/28/1146060.html
+### Владимир Бортко
+* https://vz.ru/question/2022/3/2/1146626.html
 
 # Писатели
 
