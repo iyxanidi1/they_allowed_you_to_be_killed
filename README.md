@@ -62,12 +62,11 @@
 * https://www.kp.ru/daily/27369.5/4551343/
 
 ### Тина Канделаки
+* https://echo.msk.ru/news/2985909-echo.html
 * https://www.unn.com.ua/ru/news/1966791-rosiysku-televeduchu-tinu-kandelaki-bude-ogolosheno-v-mizhnarodniy-rozshuk
 
 ### Андрей Рожков
 * https://vz.ru/question/2022/3/2/1146626.html
-### Тина Канделаки
-* https://echo.msk.ru/news/2985909-echo.html
 ### Дана Борисова
 * https://echo.msk.ru/news/2985909-echo.html
 ### Маша Малиновская
