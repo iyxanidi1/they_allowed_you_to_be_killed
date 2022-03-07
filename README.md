@@ -31,11 +31,20 @@
 
 * https://rupor.md/kto-iz-zvezd-podderzhal-a-kto-osudil-vojnu-s-ukrainoj/
 
+### Тина Конделаки
+* https://www.unn.com.ua/ru/news/1966791-rosiysku-televeduchu-tinu-kandelaki-bude-ogolosheno-v-mizhnarodniy-rozshuk
+
 # Актёры
 
 ### Марат Башаров (актер)
 
 * https://rupor.md/kto-iz-zvezd-podderzhal-a-kto-osudil-vojnu-s-ukrainoj/
+
+### Никита Михалков (Кинорежиссер)
+
+* https://rus.jauns.lv/article/progulka/489428-kto-iz-rossiiskix-zvezd-podderzal-a-kto-osudil-voinu-v-ukraine-dopolneno
+
+
 
 # Писатели
 
@@ -50,6 +59,8 @@
 ### Даниэль Орлов
 ### Вячеслав Коновалов
 
+### Дмитрий Пучков
+
 # Спортсмены
 
 ### Карпов Анатолий (Шахматы)
@@ -59,6 +70,9 @@
 ### Карякин Сергей (Автогонщик)
 * https://www.kommersant.ru/doc/5249398
 * https://www.e1.ru/text/gorod/2022/03/06/70492169/
+
+### Роман Костомаров (Фигурист)
+* https://rus.jauns.lv/article/progulka/489428-kto-iz-rossiiskix-zvezd-podderzal-a-kto-osudil-voinu-v-ukraine-dopolneno
 
 # IT
 
