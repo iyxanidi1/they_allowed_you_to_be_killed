@@ -117,8 +117,10 @@
 * https://vz.ru/news/2022/2/28/1146060.html
 ### Владимир Бортко
 * https://vz.ru/question/2022/3/2/1146626.html
+
 ### Андрей Бочаров
-* https://web.archive.org/web/20220226164208/https://vk.com/botcharov_andrey
+* https://web.archive.org/web/20220226164208/
+* https://vk.com/botcharov_andrey
 
 
 
